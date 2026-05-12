@@ -1,0 +1,1 @@
+# cs-offsite-game-plan
